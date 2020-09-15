@@ -1,1 +1,0 @@
-# whkad-whkad.github.io
